@@ -12,9 +12,9 @@
  --------
 [![Untitled43-20260923220801.png](https://i.postimg.cc/KztsR8z9/Untitled43-20260923220801.png)](https://postimg.cc/7GYNRDS7)
 --------
-　　　　　　　![](https://komarev.com/ghpvc/?username=urgituser&label=_+++𝟔3+++_&style=plastic)  
+　　　　　　　　![](https://komarev.com/ghpvc/?username=urgituser&label=_+++𝟔3+++_&style=plastic)  
 　
-   　　 　 [𝓡𝒆n𝒕ry](rmk) 　[𝓐𝑡a](rmk) 　[𝓢𝒕raw](rmk)   　　　　　　　　　　　　　　　　✮
+   　　 　　 [𝓡𝒆n𝒕ry](rmk) 　[𝓐𝑡a](rmk) 　[𝓢𝒕raw](rmk)   　　　　　　　　　　　　　　　　✮
 
 
    
