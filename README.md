@@ -13,7 +13,8 @@
 
 
 <img width="297" height="297" alt="1000000712" src="https://github.com/user-attachments/assets/703821cd-19f9-4b24-b966-ad58227cb592" />
-　　
+
+　　　　 [𝓡𝒆n𝒕ry](rmk) 　[𝓐𝑡a](rmk) 　[𝓢𝒕raw](rmk) 
    
 　　　　　　　
 
