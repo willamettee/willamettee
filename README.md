@@ -13,9 +13,9 @@
 　　 　
 
 
-<img width="297" height="297" alt="1000000712" src="https://github.com/user-attachments/assets/703821cd-19f9-4b24-b966-ad58227cb592" />
+[![Untitled43-20260923220801.png](https://i.postimg.cc/KztsR8z9/Untitled43-20260923220801.png)](https://postimg.cc/7GYNRDS7)
 
-　　　　　 [𝓡𝒆n𝒕ry](rmk) 　[𝓐𝑡a](rmk) 　[𝓢𝒕raw](rmk)   ![1000000713](https://github.com/user-attachments/assets/d4e6f1d6-a14d-4f43-aa59-d3fb8775c626)
+　　　　　 [𝓡𝒆n𝒕ry](rmk) 　[𝓐𝑡a](rmk) 　[𝓢𝒕raw](rmk)   
 
    
 　　　　　　　
