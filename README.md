@@ -14,7 +14,7 @@
 --------
 　　　　　　　![](https://komarev.com/ghpvc/?username=urgituser&label=_+++𝟔3+++_&style=plastic)  
 　
-   　　 　 [𝓡𝒆n𝒕ry](rmk) 　[𝓐𝑡a](rmk) 　[𝓢𝒕raw](rmk)   　　　　　　　.　　　　　　　　　(⁎˃.˂⁎)
+   　　 　 [𝓡𝒆n𝒕ry](rmk) 　[𝓐𝑡a](rmk) 　[𝓢𝒕raw](rmk)   　　　　　　　　　　　　　　　　(⁎˃.˂⁎)
 
 
    
