@@ -14,8 +14,8 @@
 　　　
 
 
-　　　　　　　[𝓢t𝖗𝘢w𝒑𝓪ge](rmking)              　　　　　　  .
-　　　　　　　　　　　　　　          　　　　　　　　　  　　　　　　　　　　　　　　　　　　　　　　　　.  　　　　　　　　　　　　[𝓐t𝒂 𝑩𝙤ok](https://dolliot.atabook.org)             
+　　　　　　　  .
+　　　　　　　　　　　　　　          　　　　　　　　　  　　　　　　　　　　　　　　　　　　　　　　.  　　　　　　　　　[𝓐t𝒂 𝑩𝙤ok](https://dolliot.atabook.org)             
 
 
 
