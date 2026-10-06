@@ -7,5 +7,8 @@
 
 　　　　　<img width="736" height="414" alt="1000000936" src="https://github.com/user-attachments/assets/fb3d6c82-2648-450e-9e1e-11de943b4195" />
 ------     
-　            
+<img width="728" height="414" alt="1000000939" src="https://github.com/user-attachments/assets/83c43b0c-c0c9-461e-aa73-f3217d26a36a" />
+
+
+           
 　　　　 banner solidly edited by me... 
